@@ -1,0 +1,2 @@
+# premium-flute-make-001-wooden-flute-making-planner
+You've got wood, tools, and passion for flute making—but your projects keep falling through the cracks. Without a structured system to track dimensions, wood types, progress, and timelines, even your best designs get abandoned halfway through.  The Wooden Flute Making Planner is a Notion template purpose-built for flute makers who need to manage ev
